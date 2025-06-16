@@ -7,13 +7,15 @@
 
 - 🤝 I’m looking to collaborate on **literally anything that would boost me skills\Knowledge!**
 
-- 👨‍💻 All of my projects are available at [https://github.com/H4ya](https://github.com/H4ya)
+- 🔗 Check out my projects at [github.com/H4ya](https://github.com/H4ya)
+
+
 
 - 💬 Ask me about **anything, I will wonder about it with you**
 
 - 📫 How to reach me **h4yathegenius@gmail.com**
 
-- ⚡ Fun fact **Our Uni takes 3 years from your life before choosing your major lol**
+- ⚡ Fun fact **My uni makes us wait 3 years before we can choose a major**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
