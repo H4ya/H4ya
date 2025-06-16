@@ -11,7 +11,7 @@
 
 
 
-- 💬 Ask me about **anything, I will wonder about it with you**
+- 💬 Ask me about **anything, if you want someone to wonder about it with you**
 
 - 📫 How to reach me **h4yathegenius@gmail.com**
 
