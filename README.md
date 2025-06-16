@@ -5,11 +5,11 @@
 
 - 🌱 I’m currently learning **Computer vision with python**
 
-- 🤝 I’m looking to collaborate on **literary anything what would boost me skills\Knowledge!**
+- 🤝 I’m looking to collaborate on **literally anything that would boost me skills\Knowledge!**
 
 - 👨‍💻 All of my projects are available at [https://github.com/H4ya](https://github.com/H4ya)
 
-- 💬 Ask me about **anything, I will wounder about it with you**
+- 💬 Ask me about **anything, I will wonder about it with you**
 
 - 📫 How to reach me **h4yathegenius@gmail.com**
 
