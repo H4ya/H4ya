@@ -17,7 +17,7 @@
 
 - ⚡ Fun fact **My uni makes us wait 3 years before we can choose a major**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me using code loving language in my X account: @Th3_Genius </h3>
 <p align="left">
 </p>
 
